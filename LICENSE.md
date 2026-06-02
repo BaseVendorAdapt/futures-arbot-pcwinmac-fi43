@@ -1,4 +1,4 @@
-# 
+# محدث futures arbitrage bot أدوات لـ Mac OS | مجاني futures arbitrage bot أدوات لـ PC Windows. مع لوحات معلومات مخصصة و إدارة المحفظة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
